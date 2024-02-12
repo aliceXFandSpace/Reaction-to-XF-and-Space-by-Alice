@@ -1,4 +1,4 @@
-Introduction
+#Introduction#
 
 Welcome to this essay about my relationship to Xenofeminism and Glitch Feminism – Two manifestos which I had the pleasure reading during my time in university.
 The Introduction will focus on my understanding of the two feminisms. In Overlap/Clash I will focus on the ideas that are similar and take a look at the differences between the two feminisms. I must specify that I do not wish to pit the people behind the ideas against each other. Pitting people against each other is an unfortunate and in my opinion dangerous practice of capitalism and fostered by our society and I refuse to take part in that. Therefore I will only focus on the ideas of the authors. Let’s begin.
